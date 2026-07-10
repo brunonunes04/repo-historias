@@ -1,21 +1,11 @@
-Esse repositório você conta sua história mais engraçada logo abaixo:
+Bom, vou escrever aqui um acontecimento engraçado a respeito do que aconteceu comigo no último final de semana dia 05/06/2026. 
 
-Num dia tranquilo da minha infância, o meu irmão teve ima grande idéia,
-ele pegou a bicicleta da nossa mãe e me chamou, nós fomos para a rua e 
-me disse, "nós vamos descer aquele morro", nós andamos duas casas e viramos
-a esquina em direção ao morro, enquanto eu acompanhava ele e olhava para o
-chão veio o primeiro presságio de uma tragédia, totalmente distraído eu bati
-com a testa num poste, meu irmão riu e eu confuso continuei, assim que chegamos
-no topo do morro eu ja subi na garupa da bicicleta e meu irmão falou "se segura
-bem que eu vou descer pedalando", a descida foi muito rápida e quando eu 
-percebi já estavamos chegando na esquina da nossa rua, então eu perguntei
-se ele ia frear ele ignorou e continuou fazendo a curva da esquina e indo em 
-direção da nossa casa, confiando que ele ia parar na frente de casa, quando 
-estavamos perto de casa meu irmão gritou "a bike ta sem freio" e pulou 
-da bicicleta, quando eu percebi a bicicleta estava andando sozinha e fez a
-curva em direção ao nosso portão, no último segundo eu soltei da garupa e
-tentei pegar o guidão para tentar frear, sem lembrar do que o meu irmão disse
-assim que eu segurei o guidão a bicicleta passou o meio fio e virou para 
-o muro, batendo de frente e me jogando no muro, eu caí em cima da bicicleta
-e só conseguia ouvir meu irmão rindo, depois disso ele me ajudou a levantar
-e fomos de novo tentar descer o morro.
+Então, neste último final de semana, eu fui com os meus sogros e minha namorada para Ituporanga com os carros deles. No entanto, eu levei o carro do vô mesmo assim para 
+a casa deles, por conforto mesmo... e levei a chave do carro no meu bolso e seguimos viagem. 
+Chegando lá, tirei a chave do meu bolso e deixei na cabeceira do sofá. Fomos almoçar e depois, partimos para o aniverário da prima da minha namorada, para comemorar e 
+também nos reunir para assistir o jogo do Brasil x Noruega. Depois de muito estresse e comilança, voltamos para a casá dos avós dela, nos despedimos e voltamos para Blumenau. 
+Chegando na casa dos meus sogros, eu comecei a procurar a chave, porque na minha cabeça deu um lapso de memória, mas esse lapso, veio praticamente 2H depois de termos saído da casa dos avós dela... 
+Nisso eu liguei para a minha mãe e comuniquei o ocorrido, pedi para ela avisar o meu avô de que o carro tinha parado de funcionar ou algo do tipo, só para inventar alguma desculpa..., porque eu sabia que quando eu chegasse em casa, eu iria ouvir MUITO dele. O final de semana passou, eu acabei ficando na casa da minha namorada até segunda-feira de manhã, fui trabalhar, vim pro Devs2Blu e quando cheguei em casa, depois das 22H, ele já estava dormindo. Ainda bem. 
+Quando eu acordei na terça de manhã, a primeira coisa que ele fez, após eu ter ficado 3 dias fora de casa, foi olhar pra mim e falar: cade o meu carro?!
+
+É isso... 
